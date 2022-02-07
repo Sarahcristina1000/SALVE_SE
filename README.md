@@ -1,5 +1,5 @@
 
-#S SALVE_SE
+SALVE_SE
 LEIA  SALMOS 37:10,11
 vida feliz aqui na terra ....joão 17:3
 ![praia](https://user-images.githubusercontent.com/96752968/152859204-62a2c2e2-c293-4f06-89c7-605f74a7b7b3.gif)
