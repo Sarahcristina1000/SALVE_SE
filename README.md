@@ -10,4 +10,4 @@ vida feliz aqui na terra ....joão 17:3
 
 ![LER A BIBLIA GIF](https://user-images.githubusercontent.com/96752968/153139157-21ea1665-22c8-4d02-8231-498cbd2fdf9f.gif)
 
-ler a biblia faz bem ...acredite! voc~e saberá como se salvar.
+leia a bíblia ...você saberá como se salvar ...e tambem como melhorar em tudo em sua vida ...acredite!
